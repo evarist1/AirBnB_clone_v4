@@ -214,3 +214,7 @@ For future projects, this serves as a great base for beginning to understand oth
 🔹 [LinkedIn](https://www.linkedin.com/in/jhoan-stiven-zamora-caicedo/)
 
 🔹 [Twitter](https://twitter.com/JhoanZamora10)
+
+   [LinkedIn](https://www.linkedin.com/in/chibueze-evaristus-80180a225/)
+
+   [Twitter](https://twitter.com/thisschibueze/)
